@@ -1,4 +1,4 @@
-# ⚠️ The Project files has been deleted delibratly⚠️
+# ⚠️ The Project files has been deleted deliberately⚠️
 
 ## My exams are comming soon, so i will be busy hitting the books instead of hitting the keybord(or girls😜) 
 
