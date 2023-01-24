@@ -6,5 +6,5 @@
 
 # Wish me Luck o else i will ☠
 
-<div align="center">You can still leave a star ⭐️</div>
+# <div align="center">You can still leave a star ⭐️</div>
 
