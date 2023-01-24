@@ -6,4 +6,5 @@
 
 # Wish me Luck o else i will ☠
 
-# You can still ⭐ this repo!
+<div align="center">You can still leave a star ⭐️</div>
+
