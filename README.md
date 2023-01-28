@@ -4,7 +4,7 @@
 
 ## Due to exams, uploading files could take time. 
 
-# Wish me Luck o else i will ☠
+# Wish me Luck or else i will ☠
 
 <hr />
 
